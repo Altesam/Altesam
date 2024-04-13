@@ -2,7 +2,7 @@
 - 👀 I’m interested in making money 🙁
 - 🌱 I’m currently learning airdrops
 - 💞️ I’m looking to collaborate on making money 🥹
-- 📫 How to reach me ...
+- 📫 How to reach me ... kuteyiafolabi@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: i am underrated 😂
 <!---
